@@ -1,0 +1,1 @@
+# mamajistore.github.io
